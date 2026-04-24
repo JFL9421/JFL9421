@@ -1,3 +1,6 @@
+*🧑‍🎓
+Have fun to enjoy life!
+
 ## Hi there 👋
 
 <!--
