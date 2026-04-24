@@ -1,5 +1,5 @@
 *🧑‍🎓
-Have fun to enjoy life!
+**Have fun to enjoy life!**
 
 ## Hi there 👋
 
